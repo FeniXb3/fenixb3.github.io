@@ -1,6 +1,6 @@
 ---
 title : {{title}}
 feed: show
-date : mm-dd-yyyy
+date : 01-01-2020
 ---
 
