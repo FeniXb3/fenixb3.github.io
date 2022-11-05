@@ -8,9 +8,6 @@ date : 13-03-2021
 
 ### Sobota, 13.03.2021, 22:27
 ## Wstęp
-
-[[Klucz do szczęścia]]
-
 Kim jestem? Dlaczego piszę? Po co piszę?
 Kim jesteś Ty? Dlaczego to czytasz? Po co to czytasz?
 
