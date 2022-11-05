@@ -1,5 +1,5 @@
 ---
-title : InspiracJA
+title : Początek
 feed: show
 date : 13-03-2021
 ---

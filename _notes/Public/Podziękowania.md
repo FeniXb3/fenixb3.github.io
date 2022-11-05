@@ -1,3 +1,9 @@
+---
+title : Podziękowania
+feed: show
+date : 07-06-2020
+---
+
 Ta książka nie mogłaby się wydarzyć, gdyby nie moja żona, Monia. To ona zabrała mnie pierwszy raz na Slot Art Festival w 2014 roku. I to tam dwa lata później postanowiłem nazwać jeden dzień warsztatowy InspiracJA. Moniu, dziękuję, że dałaś mi Slot.
 
 Bezpośredni impuls, by zacząć pisać pojawił się June 7, 2020 , na zajęciach z twórczego rozwiązywania problemów na mojej podyplomówce na WSE. Dziękuję Ci Jarku za genialne zajęcia i zainspirowanie swoją energią i wiedzą do dalszego działania. I za to, że kiedy powiedziałem Ci w przerwie, że postanowiłem napisać książkę powiedziałeś "Powinieneś." - albo przynajmniej tak to zapamiętałem.
