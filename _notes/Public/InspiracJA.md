@@ -1,0 +1,46 @@
+---
+title : InspiracJA
+feed: show
+date : 13-03-2021
+---
+
+## O byciu swoim własnym natchnieniem
+
+### Sobota, 13.03.2021, 22:27
+## Wstęp
+
+[[Klucz do szczęścia]]
+
+Kim jestem? Dlaczego piszę? Po co piszę?
+Kim jesteś Ty? Dlaczego to czytasz? Po co to czytasz?
+
+Prawdopodobnie się nie znamy, a jednak inspirujemy się nawzajem. Ja piszę dla Ciebie. Oczywiście nie tylko, bo chcę, by te słowa dotarły do wielu osób. Ale to myśl o Tobie - konkretnej osobie, a nie o jakichś niemych tłumach, zachęca mnie do zajęcia się teraz właśnie tą książką, a nie inną. To Ty i Twoja historia wprawia teraz w ruch marker. Piszę ręcznie, co prawda nie na papierze, ale wciąż czuję, że te słowa są moim listem do Ciebie, bardzo osobistym listem. Chcę w nim porozmawiać o Twoim wnętrzu. Chcę poznać Twoją historię. Z natury tej formy, jaką jest książka, wynika, że to raczej ja będę mówił i będzie często wyglądało na to, że mówię o sobie. Prawda nie jest jednak taka prosta, nie daje się zamknąć w ramy, które narzucamy, próbując wszystko nazwać. Chcę wierzyć, że ja opowiadam swoją historię pisząc, a Ty opowiadasz swoją czytając.
+
+Rozpalmy więc ognisko i zacznijmy opowieści.
+
+![[InspiracJA - page 1.png]]
+
+---
+
+## Początek
+Kiedy byłem nastolatkiem słuchałem sporo rapu, głównie polskiego, ale byłem też wielkim fanem Eminema. Nie pamiętam od czego się zaczęło, ale kiedy myślę o tym okresie i tej muzyce, to w głowie widzę słowo "wsparcie". Miałem różne problemy i wątpliwości, których teraz już nie pamiętam, ale wtedy były dla mne ważne. I miałem muzykę, w której ktoś jasno opowiadał o swoich problemach. Z całą szczerością słów i wkurwieniem w głosie. I w pewnym momencie dostrzegłem coś bardzo ważnego - autor danego kawałka przetrwał. No dobra, może samobójstwo Magika psuje ten obraz pozornie, ale nie do końca. Zobaczyłem nadzieję. ktoś dotrwał do momentu, kiedy mógł się podzielić tym, co było dla niego ciężkie. I nie dość, że przetrwał, to dzieląc się tym dał coś mi, czyli dzieciakowi, którego nigdy nawet nie spotkał, bo nie wiedział nawet o moim istnieniu. Wtedy poczułem jakim skarbem dla innych może być moja historia. Jakim darem może być podzielenie się nią. Jakim cudem dla kogoś może być to, że żyję.
+
+Nie nazywałem tego raczej wtedy w tak doniosły sposób, ale dotarło do mnie kilka rzeczy, które ukształtowały moje dalsze życie. Dotarło do mnie po napisaniu poprzednich zdań, że to wtedy zasiało się we mnie ziarno, które wyrastało i rozwijało się powoli, aż skupiłem się w życiu na byciu mentorem. Ale dobra, po kolei.
+
+Po pierwsze, poczułem, że nie jestem wyjątkowy. Wiem, że to może brzmieć jak coś złego, jak dołująca myśl. Dla mnie jednak ta myśl była zbawienna. W słowach raperów słyszałem ból, który sam czułem, co było dla mie ważnym sygnałem - oni przeżyli, więc i ja przeżyję. Ten wniosek nie bierze pod uwagę milionów zmiennych, ale fakty są takie, że faktycznie przeżyłem. Myśl, że moje problemy nie są wyjątkowe dawała mi siłę. Nie chodzi mi oczywiście o cieszenie się, że nie tylko u mnie jest coś nie tak. Mam na myśli prosty, baaardzo uproszony tok myślenia: jeśli nie jestem wyjątkowy, to znaczy, że inni ludzie też mieli takie problemy jak ja, możliwe, że nawet miliony czy miliardy ludzi przede mną zmagało się z czymś podobnym. Skoro nasz gatunek nie wyginął, to znaczy, że byli w stanie przetrwać te problemy. Skoro więc nie jestem wyjątkowy, to dlaczego ja bym miał ich nie przetrwać? Wiem, że jest to bardzo proste zobrazowanie tego, ale najważniejsze jest to, że ta myśl działała. W chwilach zwątpienia mogłem się na niej oprzeć, jak na lasce, która pozwalała mi isć dalej.
+
+Teraz dotarło do mnie, że to wczesny przejaw mojego najmocniejszego talentu według Gallupa - connectedness, co na polski tłumaczone jest jako współzależność. Ale o talentach kiedy indziej.
+
+Po drugie, zobaczyłem, że opowiadając swoją historię można komuś pomóc. Kiedy dzielisz się kawałkiem siebie możesz nie mieć pojęcia o wpływie, jaki kiedyś wywrzesz na czyjeś życie. Postanowiłem, że będę raperem. Widziałem jak dobrze na mnie zadziałała ta forma i uznałem, że też chcę się dzielić swoimi historiami w ten sposób. Napisałem nawet kilka tekstów w gimnazjum - mam je w zeszycie zatytułowanym "Wehikuł Czasu", bo tak bardzo chciałem cofnąć czas po zawodzie miłosnym. Złożyłem do nich podkłady w eJay Hip-Hop 2 i nagrałem jak rapuję. Nie byłem samorodnym talentem, czy rodzącą się właśnie gwiazdą polskiej sceny hip-hopowej i dość szybko uznałem te nagrania za żenujące. Słyszało je tylko kilka osób, a teraz zacząłem się zastanawiać czy nie udostępnić ich do ściągnięcia przy zakupie książki. Zabawne jest, że kiedy Ty czytasz te słowa wiesz więcej niż ja, kiedy je piszę. Bo pewnie już wiesz jaką podjąłem decyzję.
+
+Po trzecie, uczyłem się dyskutować z dorosłymi, którzy mieli odmienne zdanie ode mnie. Puszczanie polskiego rapu przy dorosłych mogło mieć swoje konsekwencje. Jedną z nich było wyrażanie przez nich niechęci, a nawet oburzenia przez przekaz, a częściej przez słownictwo w tych kawałkach. Miałem nagrane kilka kaset z muzyką, którą ciagle słuchałem i brałem ze sobą przynajmiej jedną na chyba każdą jazdę samochodem. Mam przed oczami jedną sytuację, kiedy w trakcie jazdy zaczął lecieć kawałek Karramby, którego tytułu nigdy nie pamiętam, w którym pada sporo przekleństw. Mój tata, oburzony, chciał chyba wyłączyć tę kasetę. Ja wtedy powiedziałem mu, żeby posłuchał tekstu, bo do tej pory zwracał uwagę tylko na przekleństwa. Zaczął więc słuchać i po chwili powiedział "Ma rację". Przynajmiej tak mam tę sytuację wyrytą w pamięci, ale wiem, że pamięć lubi płatać figle.
+
+Inna rozmowa, która mi się przypomina, odbyła się w szkole. Nie wiem co mnie natchnęło, ale załatwiłem, żebyśmy mogli słuchać muzyki z moich kaset chyba w trakcie godziny wychowanej. Tutaj już zasady były jasne - przekleństwa nie są mile widziane. Lista kawałków, które mi się podobały najbardziej nie składała się, jak się pewnie domyślasz, tylko z cenzuralnych kawałków, więc sam cenzurowałem nagrania. Jeśli dobrze pamiętam, to robiłem pauzę na kasecie na ułamek sekundy przy przegrywaniu kawałków z płyt, żeby tak "wyciąć" przekleństwo. Krótka dyskusja, która się wywiązała z wychowawczynią nie tyczyła zę więc przekleństw, a przekazu. Chodziło o tekst "Jakby to było, gdyby nie nie było". Ten kawałek ogólnie jest dośc specyficzny, ale teraz nie o tym. Nie pamietam całej rozmowy, ale mam przed oczami "strzępy" wspomnień, w których widzę jak wyjaśniam dlaczego moim zdaniem ta piosenka na głębszy sens. Wydaje mi się, że wychowawczyni przekonała się do mojego punktu widzenia, ale nie ręczę, że pamięć po prostu nie wykreowała mi takiego happy endu.
+
+Po czwarte, wykształciłem w sobie chyba wtedy świadomość, że mogę kontrolować co chcę przyjmować z bodźców, które do mnie docierają, a co nie. Maniakalnie słuchałem kawałka "Nowiny" Paktofoniki, w którym przekleństwa są nawet w refrenie, ale sam nie przeklinałem. Byłem grzecznym dzieckiem i podejmowałem świadomą decyzję, że nie będę używał słów, o których wiedziałem, że są uznawane za wulgarne. Jak się możesz domyślać, rapowanie ulubionych piosenek razem z autorami brzmiało raczej dość komicznie w moim wykonaniu przez pauzy, które robiłem przy każdym przekleństwie. Przeklinać zacząłem dopiero przez stres przy ostatnim projekcie w pierwszej pracy.
+
+Po piąte, zobaczyłem jak łatwo i szybko można zostać ocenianym po pozorach. Wyobraź sobie, że widzisz gościa ściętego na jeżyka, w skejtowskich dżinsach z krokiem w kolanach, który właśnie słucha o tym, że kogoś boli, że w głowach się pierdoli. Co myślisz o tej osobie? Czego się po niej spodziewasz? Zagadasz? Co zrobisz kiedy zaoferuje Ci pomoc? Tak właśnie wyglądałem ja przez kilka lat. Niesamowite dla mnie było jak szybko byłem oceniany przez nowopoznanych ludzi. Przełamywanie stereotypowych skojarzeń z takim wyglądem było dla mnie bardzo satysfakcjonujące. Zdarzały się osoby, które otwarcie przyznały się po jakimś czasie, że po pierwszym wrażeniu wsadziły mnie do konkretnej szufladki, jednak po poznaniu mnie okazywało się, że za licho nie chcę do niej wleźć.
+
+Możliwe, że znalazłbym jeszcze trochę przemyśleń z tego okresu, ale to może przy innej okazji. Teraz chcę Ci podziękować, bo dzięki przypominaniu sobie tych historii, żeby Ci je opisać docierały do mnie nowe rzeczy. Zacząłem widzieć, że ten okres był dla mnie jeszcze ważniejszy, niż mi się do tej pory wydawało. Dziękuję, że inspirujesz mnie do pisania.
+
+### Niedziela, 14.03, 00:37
