@@ -15,7 +15,7 @@ Prawdopodobnie się nie znamy, a jednak inspirujemy się nawzajem. Ja piszę dla
 
 Rozpalmy więc ognisko i zacznijmy opowieści.
 
-![image-title-here](/Public/Attachments/InspiracJA-page1.png)
+![[Public/Attachments/InspiracJA-page1.png]]
 
 ---
 
