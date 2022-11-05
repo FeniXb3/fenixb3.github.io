@@ -6,5 +6,5 @@ date : 13-03-2021
 
 ## O byciu swoim własnym natchnieniem
 
-[[Wstęp]]
-[[Początek]]
+1. [[Wstęp]]
+2. [[Początek]]
