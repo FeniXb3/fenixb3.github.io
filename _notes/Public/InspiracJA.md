@@ -13,3 +13,4 @@ Data pomysłu: 2020-06-07
 1. [[Wstęp]]
 2. [[Początek]]
 3. [[Sztuka podążania]]
+4. [[Idź za swoim ciałem]]
