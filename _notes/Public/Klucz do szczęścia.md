@@ -3,7 +3,7 @@ title : Klucz do szczęścia
 feed: show
 date : 16-11-2022
 ---
-Nagranie: https://youtu.be/2skSBXaQ9dA
+Nagranie: <https://youtu.be/2skSBXaQ9dA>
 
 Klucz do szczęścia w sercu masz
 I jeśli szansę sobie dasz
